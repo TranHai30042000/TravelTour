@@ -15,11 +15,11 @@ List Of Member:
 
 Trần Nhật Tân  (Student1323263)
 
-Leader:Trương Nguyễn Nguyên Chương (Student1468205)
+Leader:Nguyễn Quang Huy (Student1468178)
 
-Nguyễn Duy Anh (student1468183)
+Trần Thanh Hải(student1237676)
 
-Nguyễn Quang Huy (Student1468178)
+
 
 =======================================
 
